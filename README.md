@@ -11,3 +11,6 @@ Las bases de datos originales fueron:
 - Agricultura y TIerra 2023
 - Education Panel 2023
 
+La presentación de este estudio se encuentra en el siguiente link:
+https://www.canva.com/design/DAGmW4Q1i8c/VN-XS2_s7zN5OdlrI7UckA/edit?utm_content=DAGmW4Q1i8c&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
